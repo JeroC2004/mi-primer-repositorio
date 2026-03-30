@@ -1,0 +1,1 @@
+Mi expectativa respecto a la materia es adquirir nuevos conocimientos y herramientas que me permitan ampliar mi comprensión sobre el manejo de la información y su importancia dentro de las organizaciones, fortaleciendo mi formación académica y profesional.
