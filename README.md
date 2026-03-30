@@ -1,1 +1,3 @@
-# mi-primer-repositorio
+Nombre: Jerónimo
+Apellido: Corvi
+Legajo: 52234
